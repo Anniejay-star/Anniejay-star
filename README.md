@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with Javascript
 - 💬 Ask me about anything
 - 😄 Pronouns: Her
-- ⚡ Fun fact: I am Beautiful
+- ⚡ Fun fact: I am Beautiful girl
